@@ -1,3 +1,6 @@
+<img width="1117" height="791" alt="Screenshot 2026-03-30 105343" src="https://github.com/user-attachments/assets/0f18024a-e5bd-486f-97e6-f941a246242f" />
+<img width="1119" height="786" alt="Screenshot 2026-03-30 105422" src="https://github.com/user-attachments/assets/94864f17-2725-4475-b60d-d658d398d8d1" />
+<img width="1120" height="783" alt="Screenshot 2026-03-30 105455" src="https://github.com/user-attachments/assets/0bfb3619-a34f-424b-9852-9c5dd1598727" />
 ### **Experiment No. 11**
 
 ### **Title:**
